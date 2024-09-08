@@ -1,8 +1,7 @@
-- 👋 Hi, I’m @chaos607
+- 👋 Hi, I’m brynth dave
 - 👀 I’m interested in videogames & movies
 - 🌱 I’m currently learning
-- 📫 How to reach me ...
-- 😄 Pronouns: was/were
+- 📫 How to reach me -- chaos33457@gmail.com
 - ⚡ Fun fact: im retarded XD
 
 <!---
